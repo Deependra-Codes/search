@@ -4,4 +4,4 @@ for Example-> If You search Ctn ->
 it will show you result with cotton product 
 
 for Fd
-it will shw=ow Hd Products 
+it will shwow Hd Products 
